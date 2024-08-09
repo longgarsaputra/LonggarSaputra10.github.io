@@ -1,1 +1,0 @@
-# longgarsaputra10.github.io
